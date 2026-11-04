@@ -1,4 +1,4 @@
-# সালাম, আমি Salim Rana 👋
+#আমি Salim Rana 👋
 
 ## 🏪 সান ইলেকট্রনিক্স (Sun Electronics)
 
